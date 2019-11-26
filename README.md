@@ -1,1 +1,0 @@
-# ArooxSediq.github.io
